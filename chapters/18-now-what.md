@@ -1,6 +1,6 @@
 # Now what?
 
-Today, the moment I'm writing this year, we're more than a year later. I didn't get fired since, so that's something positive, I guess. I moved to Antwerp, to start, yet again, all over. The next time I applied for a job, I did mention the A-word, although I'm still struggling with what it actually means.
+Today, the moment I'm writing, we're more than a year later. I didn't get fired since, so that's something positive, I guess. I moved to Antwerp, to start, yet again, all over. The next time I applied for a job, I did mention the A-word, although I'm still struggling with what it actually means.
 
 See, I have been labeled with autism when I was a toddler. Here's something interesting about autism, between 1992 and 2003, the amount of people being diagnosed with autism increased over 800% (US numbers, Wikipedia). Autism is a handicap, not an illness, it's not contagious in any way. This leaves us with two ways to look at those numbers: either we discovered way better methods to diagnose people, or we somehow started to abuse the term 'autism'.
 
