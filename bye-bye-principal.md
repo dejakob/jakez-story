@@ -1,6 +1,6 @@
 # Bye bye, principal!
 
-Apparently, they fired the principal just after the end of the school year. They didn't give any explanation, at least that was what my mom told me. She was apparently shocked by the events and didn't exactly try to hide that. Everyone and everything needed to know how she felt about it. She used to be good friends with the man and that's probably one of the reasons why she got that upset.
+One of the first days of the summer vacation, the school pointed out some updates to its teachers. Apparently, they fired the principal just after the end of the school year. They didn't give any explanation, at least that was what my mom told me. She was apparently shocked by the events and didn't exactly try to hide that. Everyone and everything needed to know how she felt about it. She used to be good friends with the man and that's probably one of the reasons why she got that upset.
 
 But how is any of that related to my story? Well, the action, him getting fired, didn't really affect my life whatsoever. But do you remember Newton's third law? For every action, there is a reaction. It's the reaction that came along with it, the consequences no one thought about.
 
