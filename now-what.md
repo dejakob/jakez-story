@@ -1,0 +1,13 @@
+# Now what?
+
+Today, the moment I'm writing this year, we're more than a year later. I didn't get fired since, so that's something positive, I guess. I moved to Antwerp, to start, yet again, all over. The next time I applied for a job, I did mention the A-word, although I'm still struggling with what it actually means.
+
+See, I have been labeled with autism when I was a toddler. Here's something interesting about autism, between 1992 and 2003, the amount of people being diagnosed with autism increased over 800% (US numbers, Wikipedia). Autism is a handicap, not an illness, it's not contagious in any way. This leaves us with two ways to look at those numbers: either we discovered way better methods to diagnose people, or we somehow started to abuse the term 'autism'.
+
+Everyone wants to stereotype people, putting people into boxes, it's an easy to do. You don't have to know someone completely to estimate what they're capable of and how they would react in certain situations. I think that's what's happening here as well, same counts for other handicaps such as ADHD, the number also increased. There a not more people (percentage wise) with ADHD living than ten years ago, but we diagnosed more with it. Someone who was a bit wild and had some trouble concentrating, used to be known as someone who was a bit wild and had some trouble concentrating. Today we call them someone with ADHD. Someone who used to be bad at writing, is now known as someone with dyslexia.
+
+I can hear you thinking: isn't that a good thing, so that more people get the specialized treatment they need? Yes... No... Maybe... My point is, sometimes people get the wrong treatment, like I did. I got people who helped me scheduling my homework. I got people who wanted to take me away from bigger groups of pupils. Some people tried to protect me from all kinds of social events and interactions. But I didn't need any of those. The things I did need at a time was a hug every now and then. I probably needed a psychologist, but not someone specialized in autism. I needed someone I could really talk to, not someone who knew me better than I did or someone who knew what was best for me.
+
+You have to understand that besides all labels, everything I wrote, everything that happened, we're way less different than we are alike. Maybe I have some kind of social problems, maybe I'm better at other things, who knows. It shouldn't matter, everyone is better at some things and worse at other things, that's life, accept it.
+
+How should we call people with ADHD, dyslexia, autism,...? I know something: 'people'. Because in the end, there's no such thing as normal people.
