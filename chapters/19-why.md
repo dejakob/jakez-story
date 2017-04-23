@@ -6,4 +6,4 @@ While watching the show, I got angry as well. Especially, the times when she wan
 
 That's what I'm doing now. Five years ago, the 24th of April, 2012, something horrible happened. I didn't even have an explanation why. I had a serious problem, I felt bad all the time and sometimes couldn't control my emotions. Nowadays, there are still demons living inside of me, sometimes. You can't always control what happens, but you can control how you deal with it.
 
-I learned a lot during the past years. Everything you feel is about the perspectives you have on the situation. It's all about perspectives. But in order to understand those perspectives someone else has, you need to know the full story.
+I learned a lot during the past years. Everything you feel is about the perspectives you have on the situation. It's all about perspectives. But in order to understand the perspectives someone else has, you need to know the full story.
