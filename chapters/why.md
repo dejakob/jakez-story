@@ -1,4 +1,4 @@
-# Why did I even wrote this?
+# Why did I even write this?
 
 Last week, I binge-watched Netflix' thirteen reasons. It's about a teenage girl who took her own life and left thirteen tapes why she did it. It's a good show, you should definitely watch it as well. I liked how they showed how little problems also could be 'a reason'. Some things didn't seem like a huge deal to a lot of people, but to the main character, it was.
 
