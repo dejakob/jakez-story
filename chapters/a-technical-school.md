@@ -1,4 +1,6 @@
-Moving to a technical school could mean a lot of things, one of those could easily be a fresh start. Most people didn't know me there, they couldn't possibly have any judgement about me, and that made me feel more conformable. I started to like school again, it gave me a break from whatever was going on at home and some people were really nice to me.
+# A technical school
+
+Moving to a technical school could mean a lot of things, one of those could mean a fresh start. Most people didn't know me there, they couldn't possibly have any judgement about me and that made me feel more conformable. I started to like school again, it gave me a break from whatever was going on at home and some people were really nice to me.
 
 Everything seemed to be great and my grades went up again. I learned things pretty well, wasn't bullied at all and felt like I was just like anyone else in the school. The teachers seemed to be happy to have me there and I no longer was 'the child of the history teacher'.
 
