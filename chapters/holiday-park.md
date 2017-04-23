@@ -1,3 +1,5 @@
+# Holiday park
+
 I have to admit, some good things came out of my pursuit of being a normal person. It was around the time I started working as a student employee in a holiday park. I met some new people, so I got a fair chance.
 
 The first day at my weekend job, I was expecting I had to clean dishes all day. Somehow, I ended up baking and selling hotdogs to the visitors. It was way better than what I expected and boss was pretty happy about my work at the end of the day. It felt like finally someone trusted me and gave me responsibilities. It felt good that I could finally do something useful and the day became even better when I was waiting for my train home. Two people were waiting for the same train. One of them, Christine asked me if I also worked at the holiday park that day. And that's how I got into my first decent conversation ever. We talked about our day and what we did at school. I had no idea making friends could be that easy.
